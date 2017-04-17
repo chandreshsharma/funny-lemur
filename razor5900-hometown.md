@@ -11,7 +11,7 @@ Trappers Chop House - Steak
 
 ## Fun Things to Do
 
-walk/bike ride (many trails), 
+walk/bike ride (many trails), The cherry creek trail system is great for beginners.
 dance @ Tailgate Tavern, 
 boondocks (put-put, go-carts, bowling, video games, bar, lazer tag)
 
