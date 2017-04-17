@@ -9,6 +9,8 @@
   - Steak tip salad is a favorite
 - Goldenrod's
   - Best ice cream and fried seafood
+- Milk and Honey
+  - Vegetarian friendly
 
 ### Fun Things to Do
 - NH Fishercats
