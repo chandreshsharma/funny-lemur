@@ -5,5 +5,17 @@ Lexington, consolidated with Fayette County, is the second-largest city in Kentu
 Lexington ranks tenth among US cities in college education rate, with 39.5% of residents having at least a bachelor's degree.[5] It is the location of the Kentucky Horse Park, The Red Mile and Keeneland race courses, Rupp Arena, the world's largest basketball-specific arena, Transylvania University, the University of Kentucky, and Bluegrass Community & Technical College.
 
 ### Great Places to Eat
-
+ - Burger King
+ - Wendy's
+ - Burger Queen
+ - Shoney's Big Boy
+ - McDonald's
+ - Trendy hippy places
+ 
 ### Fun Things to Do
+ - Roller derby
+ - Basketball
+ - Rugby
+ - Swimming
+ - Skiing
+ - Hockey
