@@ -4,6 +4,7 @@
 
 - For pizza try Anna's Pizzeria in downtown Fuquay
 - For BBQ, try The Pit in Raleigh
+- My favorite place for Tacos is Los Tres Magueyes in Fuquay
 
 ### Fun Things to Do
 
