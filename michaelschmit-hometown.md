@@ -8,3 +8,4 @@
 ### Fun things to do
 - Valley Fair
 - Cantebury Park
+- Mystic Lake
