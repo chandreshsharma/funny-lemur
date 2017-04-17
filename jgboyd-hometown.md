@@ -7,6 +7,7 @@
 
 ### Fun Things to Do
 - Climb Mount Monadnock
+- Camping Mount Monadnock State Park
 - Friendly Farm
 - Sail on Dublin Lake
 - Visit first public libray in the nation
