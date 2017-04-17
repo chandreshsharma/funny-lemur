@@ -1,2 +1,5 @@
-Hometown: Greenfield NH
-Things to do: not much
+## Greenfield NH
+
+### Things to do: not much
+
+### Places to eat:  not many
